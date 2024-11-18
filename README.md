@@ -1,1 +1,1 @@
-![haj x skateboard](https://i.pinimg.com/736x/c0/d0/43/c0d0435299159c43c3d020d8735760c4.jpg)
+[https://www.reddit.com/media?url=https%3A%2F%2Fi.redd.it%2Fbk6dm7terlk51.jpg](profile picture)
