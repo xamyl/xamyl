@@ -3,3 +3,7 @@
 
 ![stats](https://files.catbox.moe/i32sag.png)
 
+
+[![My Skills](https://skillicons.dev/icons?i=js,html,css,svelte,md,react,next,go,discordjs,nodejs,py,vite,webpack)](https://skillicons.dev)
+
+
